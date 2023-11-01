@@ -17,3 +17,12 @@ A: Kris Dreemurr, alive, in the flesh.
 <img src="https://media.discordapp.net/attachments/1149844162393427970/1169068936822788208/us.gif?ex=65540f4a&is=65419a4a&hm=436a0dd3b33119ce9ff6dd7c792baea6b6e40c3d8c7384ebddf44a6b062967da&=&width=600&height=300"/>
 
 
+
+
+<h1>FREE MP4</h1>
+https://file.garden/ZQqQy6zuxT0YowIV/storyofundertale.mp4
+
+<h1>FREE MP3</h1>
+https://file.garden/ZQqQy6zuxT0YowIV/Tongue%20Tied.mp3
+
+
