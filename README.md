@@ -1,7 +1,7 @@
 <h1>Q&A!</h1>
 
 <h2>Q: who ARE you? </h2>
-A: Ah, people usually call me Kris or Diva. I'm a young (learning) artist that loves Deltarune, Homestuck, Undertale, and Red Dwarf, yeah, the 1989 Sci-fi Sitcom. 
+A: Ah, people usually call me Kris or Diva. I'm a young (learning) artist that loves Deltarune, Futurama, Undertale, and Red Dwarf, yeah, the 1989 Sci-fi Sitcom. 
 
 <h2>Q: are you a girl or a boy??? </h2>
 A: I'm Non-Binary with a feminine lean, although I'm confused with my gender somewhat. 
